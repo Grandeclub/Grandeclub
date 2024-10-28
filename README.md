@@ -6,11 +6,12 @@ Grandeclub — британский инвестброкер, известный
 Множество отзывов о работе Grandeclub легко обнаружить на таких ресурсах, как:
 * [Medium](https://medium.com/@grandeckub/grandeclub-%D0%BE%D1%82%D0%B7%D1%8B%D0%B2%D1%8B-%D0%BD%D0%B0%D0%B4%D0%B5%D0%B6%D0%BD%D1%8B%D0%B9-%D0%B1%D1%80%D0%BE%D0%BA%D0%B5%D1%80-%D0%B8%D0%BB%D0%B8-%D0%BD%D0%B5%D1%82-64202a4be8e4);
 * [HackMD](https://hackmd.io/EuB6QAGLQG2O2RShuiGHXA);
-* [Teletype];
-* [Blogspot];
+* [Teletype](https://teletype.in/@grandeclub/BjzxK-l6hm9);
+* [Blogspot](https://grande-club.blogspot.com/2024/10/grandeclub.html);
+* [LinkedIN](https://www.linkedin.com/showcase/grande-club/);
 * [Reddit];
-* [VK];
-* [OK].
+* [VK](https://vk.com/grande__club);
+* [OK](https://ok.ru/group/70000008260917).
 
 Стоит обратить внимание, что авторы отзывов о Grandeclub пишут, в основном, о положительных сторонах брокера. Это:
 * Удобство регистрации. Открыть счет на платформе легко, процесс регистрации и процедура верификации автоматизированы и занимают минимальное время.
